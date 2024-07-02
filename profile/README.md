@@ -2,4 +2,4 @@
 
 Currently in development
 
-# [DISCORD NOT OPEN YET](https://pages.github.com/)
+# [DISCORD](https://discord.gg/u5m26NFvHr)
